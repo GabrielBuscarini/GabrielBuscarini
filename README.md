@@ -1,4 +1,4 @@
-### Ola 👋
+### Hi there 👋
 
 Meu nome é Gabriel Buscarini
 
